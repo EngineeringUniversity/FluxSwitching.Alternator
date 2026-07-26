@@ -1,2 +1,4 @@
+- [1904 Flux Switch Generators](https://youtu.be/_Zutx3T37jI)
 - [2209 Switched Flux Generators](https://youtu.be/mN8PMm3IeIM) by: @ThinkingandTinkering
+- [Switching Flux Alternator Assembly](https://youtu.be/L-VY1MJCEKU)
 - 
