@@ -1,1 +1,2 @@
-
+- [2209 Switched Flux Generators](https://youtu.be/mN8PMm3IeIM) by: @ThinkingandTinkering
+- 
